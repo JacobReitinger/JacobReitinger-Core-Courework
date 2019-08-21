@@ -1,2 +1,2 @@
-# JacobReitinger-Core-Courwork
+# JacobReitinger-Core-Coursework
  
